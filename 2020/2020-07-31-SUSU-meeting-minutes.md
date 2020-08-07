@@ -1,0 +1,25 @@
+# SUSU 13:00 meeting: Notes
+ 
+- You can still book rooms next year for meetings, but there will be less rooms available.
+- SUSU training workshop for doing videos on 12/08 14:00. SUSU TV can help.
+- SUSU could give wifi card machines to societies. Cash can no longer be used?
+- Stags and Bridge will be bookable.
+- Crowns might not be able to allow large groups. SUSU might be able to let in non-students into SUSU for meetings, not confirmed.
+- They are planning communications week in 2 weeks from now. Give videos to susu about volunteering.
+- Email Corin to get SUSU emails about societies and to get involved in promotional videos about volunteering societies.
+  - Email: vpactivities@soton.ac.uk
+  - Facebook: Corin Holloway SU
+- Lots of “online things” that will replace bunfight. He wants to do a volunteering video that gives each society 20 seconds airtime. Ask him to get involved
+- SUSU wants to add a volunteering section on the website. Ask Corin to get “our page” on his website.
+- Southampton rag can help with fundraising: president@susurag.org
+- Allow freshers a week to meet their flatmates before promoting your society in halls.
+- Is SUSU making a formal social/events social distancing policy to guide events? : Yes, no more 50 people in a room, etc… (policy isn’t finalised).
+- SUSU funding will be smaller next year due to lack of students. SUSU will fund stuff that had to be replaced due to social distancing. SUSU might have more money in the first semester.
+- You can do some activities in the meet and greet, but it will be limited due to risk (e.g limited contact). What is and isn’t possible may change over time.
+- Next year, the university will be stricter in terms of social distancing guidelines than the government, to limit chances of outbreak in the community.
+- Message Corin to get Tommy added to society presidents facebook group (if he isn’t already on it).
+- Microsoft teams already works with non-students (you can add them as guests).
+- Make sure the society page is updated with pictures, videos and a description.
+- Email Corin about treasurer training.
+- You can update the risk assessment after the initial one has been uploaded.
+- SUSU online communities, emails, facebook and Instagram are the main ways of communication. This facebook group also exists: https://www.facebook.com/groups/susucharityandvolunteering
